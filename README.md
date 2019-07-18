@@ -28,5 +28,5 @@ Want to say hi? Will be happy to hear from you
 * [Twitter](http:///www.twitter.com/asadadams)
 * [Facebbok](http://www.facebook.com/asad.adams)
 * [Instagram](http://www.instagram.com/asadadams)
-* [Linkedin](http://www.linkedin.com/in/asad-adams-7548a4104/)
+* [Linkedin](https://www.linkedin.com/in/asad-adams-28ab5918a/)
 * [Mail](clarkpeace.adams@gmail.com)
